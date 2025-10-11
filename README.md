@@ -16,7 +16,7 @@ I am seeking a challenging position in software development where my strong anal
 
 - **B.E. in Computer Science and Engineering**  
   Rathinam Technical Campus, Coimbatore  
-  CGPA: 7.3 (2021-2025)
+  CGPA: 7.54 (2021-2025)
 
 - **Diploma in Computer Networks**  
   PSG Polytechnic College, Coimbatore  
